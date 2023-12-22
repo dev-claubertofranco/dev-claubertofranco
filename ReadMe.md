@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Sou estudante de programação <br> Estou a procura de Estágio<br>
+🔭 Sou estudante de programação <br> 🐵Estou a procura de Estágio<br>
 
 
 ## 🌐 Socials:
